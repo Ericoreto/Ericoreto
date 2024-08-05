@@ -2,7 +2,7 @@
 ## Meu nome é Eric
 
 💻- Cursos:
-  Cursando ciência da computação no UNICEUB (5º semestre)
+  Cursando ciência da computação no UNICEUB (5º semestre)\n
   Saga Arte Digital
   
 🦜- Idiomas:
