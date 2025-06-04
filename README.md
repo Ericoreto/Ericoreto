@@ -3,7 +3,7 @@
 
 💻- Cursos:
 
-  Cursando ciência da computação no UNICEUB (5º semestre)
+  Cursando ciência da computação no UNICEUB (6º semestre)
   
   Saga Arte Digital
   
